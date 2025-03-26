@@ -1,1 +1,1 @@
-# eaglercraft-1.12.2-guaranteed-to-work-on-school-Chromebook-2025
+# eaglercraft-1.12.2-guaranteed-to-work-on-school-Chromebook-2025 MOJANG I ALREADY OWN MINECRAFT BOTH VERSIONS AND I DONT HAVE TIME TO TAKE THIS DOWN im just helping people who have the main eaglercraft site blocked, THIS EAGLERCRAFT FILE HAS OFF HAND FEATURES note make a new desktop the teachers cant see that either.
